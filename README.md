@@ -2,7 +2,6 @@
 万一免五开户股票A股开户量化交易程序化交易期货期权开户同花顺通达信东方财富自动交易外汇比特币以太坊
 
 
-0.加威信： gupiao888nb 
 
 ![Image text](https://raw.githubusercontent.com/ak4stock/ths_tdx_stock_xueqiu_guoren/main/contact.png)  
 
